@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me YuleimyMiguel@proton.me
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I know 
+- ⚡ Fun fact: I have pets and I love them. 
 
 <!---
 YuleimyMiguel/YuleimyMiguel is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
